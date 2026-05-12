@@ -1,4 +1,4 @@
-#  
+#  Experience hooked like never before with hooked vip Scripts, the #1 Script. Includes private server access and auto-collect for unbeatable
 
 
 
